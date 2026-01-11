@@ -1,1 +1,0 @@
-# adapterharmy.github.io
